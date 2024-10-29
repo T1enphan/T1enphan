@@ -1,4 +1,4 @@
-## Hi Everyone, Welcome to my github 👋
+## Hi everyone, Welcome to my github 👋
 
 
 ## 🌐Socials
